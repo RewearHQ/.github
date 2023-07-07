@@ -1,5 +1,7 @@
+![image](https://github.com/RewearHQ/.github/assets/39674930/4964def8-6c30-4104-a889-7ff950c776c3)
+
 <p align="center">
-  
+
 **Muy cerca de mi ocaso, yo te bendigo, vida,**
 **porque nunca me diste ni esperanza fallida,**
 **ni trabajos injustos, ni pena inmerecida;**
